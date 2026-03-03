@@ -32,7 +32,7 @@
 
 ## 🌐 Connect With Me
 - 📧 Email:sdas223087@bscse.uiu.ac.bd
-- 💼 LinkedIn: [your-link](https://www.linkedin.com/in/shurav-das-b7837126b)  
+- 💼 LinkedIn: [Shurav-Das](https://www.linkedin.com/in/shurav-das-b7837126b)  
 - 🌍 Portfolio: Coming Soon  
 
 ---
